@@ -22,6 +22,6 @@ Here are some ideas to get you started:
 -  👯  I’m looking to collaborate on project with data analysts, inorder to enhance and improve my skills. I am avaliable to work remotely.
 - 🤔  I’m looking for help with remote jobs on data analyts.
 - 💬 Ask me about business on electrical materials and data related challenges.
-- 📫 How to reach me: [LINKED](https://www.linkedin.com/in/emmanuel-chinonso-80ba81190/)
+- 📫 How to reach me: [LINKEDIN](https://www.linkedin.com/in/emmanuel-chinonso-80ba81190/)
 - 😄 Pronouns: Male
 - ⚡ Fun fact: Fun fact: I love playing and watching football. That is my way of leisure. I also love swimming, to relax my nerves and unwind.
